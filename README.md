@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sleepyanubis1
+- 👀 I’m interested in horror games 
+- 🌱 I’m currently learning codeing
